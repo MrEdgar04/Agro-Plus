@@ -1,1 +1,0 @@
-# Agro-Plus primo
